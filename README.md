@@ -1,6 +1,6 @@
 ![alt tag](http://i.imgur.com/mnh6gxX.jpg)
 
-This is pretty simple.  I am unemployed.  I am also writing a Ronald Tromp/Zoe Quinn/Warhammer 40k fanfiction adaptation of Wuthering Heights.
+This is pretty simple.  I am unemployed.  I am also writing a Ronald Tromp/Zoe Quine/Warhammer 40k fanfiction adaptation of Wuthering Heights.
 
 If you want more, send Bitcoin here: 33fXboTnT66yJCQtBoQccgMjXPH5zyfr4D
 
