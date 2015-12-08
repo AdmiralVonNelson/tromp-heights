@@ -6,8 +6,8 @@ If you want more, send Bitcoin here: 33fXboTnT66yJCQtBoQccgMjXPH5zyfr4D
 
 If it gets big enough, there will be a self-published Kindle book on Amazon and an audiobook.
 
-I am almost done with the second chapter.  It will be pushed up in good time.
+The second chapter is up.  I've done this all in two days.  I assure you, I am in deadly earnest.
 
-Keep in mind, there are 526 pages of source material remaining at the time this readme was written.  
+511 pages of source material remain at the time this readme was last updated.  
 
 The only brakes on this train are the ones you put there.
